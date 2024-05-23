@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: 3438886415@qq.com
 - 😄 Pronouns: stuqid
-- ⚡ Fun fact: likr thinking
+- ⚡ Fun fact: like thinking
 
